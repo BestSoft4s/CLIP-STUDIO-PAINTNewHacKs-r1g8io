@@ -1,0 +1,1 @@
+# CLIP-STUDIO-PAINTNewHacKs-r1g8io
